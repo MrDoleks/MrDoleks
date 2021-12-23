@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MrDoleks
+- 👀 I’m interested in Artificail Intelligence development. 
+- 🌱 I’m currently learning 12th Grade AP Computer Science Principles
+- 💞️ I’m looking to collaborate on any project I will work on in the future. 
+- 📫 For now, you can reach me by my school email, doleksy000@stu.waukesha.k12.wi.us
